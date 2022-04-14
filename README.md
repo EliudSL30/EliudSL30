@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @EliudSL30
+- 👀 I’m interested in basketball, chemistry, engineering and soccer
